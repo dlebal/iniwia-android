@@ -37,4 +37,4 @@ Nos reservamos el derecho de modificar esta política de privacidad. Cualquier c
 
 ## 6. Contacto
 
-Para cualquier duda o consulta, puedes escribir a: [apps.dlebal@gmail.com]
+Para cualquier duda o consulta, puedes escribir a: [apps.dlebal@gmail.com](apps.dlebal@gmail.com)
